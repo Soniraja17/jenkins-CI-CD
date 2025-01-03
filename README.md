@@ -3,3 +3,10 @@
 <img width="1710" alt="Screenshot 2024-12-06 at 8 14 48 AM" src="https://github.com/user-attachments/assets/779331c8-1380-4856-bf17-01648937ff51" />
 
 <img width="1710" alt="Screenshot 2024-12-06 at 8 15 21 AM" src="https://github.com/user-attachments/assets/e43e2d52-44dc-4238-a37b-0c192e1e2123" />
+
+<img width="1710" alt="Screenshot 2024-12-06 at 8 16 11 AM" src="https://github.com/user-attachments/assets/61b6cc1b-f38a-4dea-b4e1-ccf566f919ed" />
+
+
+<img width="1710" alt="Screenshot 2024-12-06 at 8 16 19 AM" src="https://github.com/user-attachments/assets/67b61f53-3519-4604-a3ff-b8b5fb8e1546" />
+
+<img width="1710" alt="Screenshot 2024-12-06 at 8 16 24 AM" src="https://github.com/user-attachments/assets/0d0a910c-508e-41e5-9e7c-bdaeba675120" />
